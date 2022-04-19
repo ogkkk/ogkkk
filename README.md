@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ogkkk
+- 👀 I’m interested in sprunk
+- 🌱 I’m currently learning backend
+- 📫 How to reach me: dm me
